@@ -1,8 +1,8 @@
 # raelus.github.io
 한국 라엘리안 무브먼트
 
-✅ https://www.rael.org/
-✅ https://www.etembassy.org/
+✅ www.rael.org
+✅ www.etembassy.org
 
 “우주인들은 특별한 외교적 지위를 요청한다”
 외계 문명이 우리가 공식적인 만남을 준비하도록 우리와 접촉하고 징표들을 보여주고 있음이 점점 더 분명해지고 있다. 일부 정부 관료와 과학자들은 의심 할 여지없이 이러한 사실을 이미 알고 있다!
